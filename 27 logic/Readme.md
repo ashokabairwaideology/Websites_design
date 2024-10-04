@@ -1,16 +1,10 @@
-== Theme Name: Logic - Free Html5 Multipurpose Business Template
 
-== Copyright (c) 2016 BootstrapThemes.co
-
-== http://BootstrapThemes.co
+![screencapture-file-home-ashoka-Documents-web-development-27-logic-index-html-2024-10-04-15_04_25](https://github.com/user-attachments/assets/5d06e6d0-cfb8-47d3-9c6e-2ea0019d19f4)
 
 
 
-Html Created by: http://bootstrapthemes.co
 
-
-
-Psd Created by: --Arifuzzaman Sajib-- https://www.behance.net/gallery/31881449/Free-Multipurpose-Business-PSD-Template
+Psd Created by: --ashoka bairwa
 
 
 Rights: 
@@ -22,7 +16,7 @@ link back to this site is required, however any credit will be much appreciated.
 
 Prohibitions:
 You do not have the rights to redistribute, resell, lease, license, sublicense or offer 
-files downloaded from http://bootstrapthemes.co to any third party ìas isî or as a separate attachment 
+files downloaded from http://bootstrapthemes.co to any third party Ã¬as isÃ® or as a separate attachment 
 from any of your work. If you wish to promote my resources on your site, you must link back 
 to the resource page where users can find the download and not directly to the download file.
 
