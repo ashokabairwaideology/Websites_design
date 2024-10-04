@@ -1,6 +1,8 @@
 -----------------------
 # README
 -----------------------
+![Screenshot from 2024-10-04 14-52-34](https://github.com/user-attachments/assets/fb756523-e5fc-47c3-be86-9b0db485eee0)
+
 
 Furn is a bootstrap 3 framework based html5/css3 ecommerce template.It will help developers to rapidly built a ecommerce website
 
