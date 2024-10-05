@@ -3,10 +3,6 @@
 =================================================
 
 	  Website Template Name: Photography
-	  Website Template URI: http://www.templatemonster.com/free-templates/free-website-template-photographer-portfolio.php
-	  Version: 1
-	  Author: TemplateMonster.com Team
-	  Author URI: http://www.templatemonster.com/
 
 ======================================================================
 
