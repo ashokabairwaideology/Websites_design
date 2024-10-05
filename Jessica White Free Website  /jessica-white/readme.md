@@ -1,0 +1,1 @@
+![screencapture-file-home-ashoka-Documents-portfolio-Jessica-White-Free-Website-jessica-white-index-html-2024-10-05-15_12_15](https://github.com/user-attachments/assets/a7d6db0c-a3bc-4f05-852b-f153a0f4294e)
