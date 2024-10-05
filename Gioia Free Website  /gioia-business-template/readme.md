@@ -1,0 +1,1 @@
+![screencapture-file-home-ashoka-Documents-portfolio-Gioia-Free-Website-gioia-business-template-index-html-2024-10-05-15_02_26](https://github.com/user-attachments/assets/90bd7db3-ef67-45f1-8775-6019a071bce1)
