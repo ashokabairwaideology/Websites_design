@@ -1,0 +1,1 @@
+![screencapture-file-home-ashoka-Documents-portfolio-Mini-Profile-Free-Website-templatemo-530-mini-profile-index-html-2024-10-06-09_41_32](https://github.com/user-attachments/assets/ac05e1ee-4b2f-450b-8031-048c29c3fa31)
