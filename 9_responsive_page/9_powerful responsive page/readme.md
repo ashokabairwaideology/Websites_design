@@ -1,0 +1,1 @@
+![screencapture-file-home-ashoka-Documents-portfolio-9-responsive-page-9-powerful-responsive-page-index-html-2024-10-05-14_42_26](https://github.com/user-attachments/assets/f5369d55-3a75-4ee6-a8fc-84cc510c8dc3)
