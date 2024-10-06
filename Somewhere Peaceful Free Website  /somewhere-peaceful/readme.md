@@ -1,0 +1,1 @@
+![screencapture-file-home-ashoka-Documents-portfolio-Somewhere-Peaceful-Free-Website-somewhere-peaceful-index-html-2024-10-06-09_57_51](https://github.com/user-attachments/assets/123d6923-a73e-4429-8e4c-5ceb16c4f285)
