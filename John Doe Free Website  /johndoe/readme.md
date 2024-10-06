@@ -1,0 +1,1 @@
+![screencapture-file-home-ashoka-Documents-portfolio-John-Doe-Free-Website-johndoe-public-html-index-html-2024-10-06-09_34_56](https://github.com/user-attachments/assets/334698f1-5b0f-4464-8fb2-61a4d521d8cd)
