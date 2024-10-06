@@ -1,0 +1,1 @@
+![screencapture-file-home-ashoka-Documents-portfolio-The-Card-Free-Website-2109-the-card-index-html-2024-10-06-09_59_55](https://github.com/user-attachments/assets/3b025334-6f0d-4a52-9c5d-fe95a62d7e78)
