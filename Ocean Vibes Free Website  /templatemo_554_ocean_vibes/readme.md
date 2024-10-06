@@ -1,0 +1,1 @@
+![screencapture-file-home-ashoka-Documents-portfolio-Ocean-Vibes-Free-Website-templatemo-554-ocean-vibes-index-html-2024-10-06-09_44_43](https://github.com/user-attachments/assets/a75bf8b5-ec72-4b20-8163-dbd54c6e7802)
