@@ -1,0 +1,1 @@
+![screencapture-file-home-ashoka-Documents-portfolio-Sample-Resume-Free-Website-sample-resume-index-html-2024-10-06-09_53_51](https://github.com/user-attachments/assets/28e3d233-cbfa-4123-acc4-502938658e6d)
